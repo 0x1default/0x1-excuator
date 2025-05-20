@@ -8,7 +8,6 @@ Hi, I'm 0x1 default. I created this excuator for people who can't or don't have 
 Link Of Download : https://www.mediafire.com/file/7a2ow42tp1vxpun/0x1cheat.rar/file
 
 Rar Pass : 1
-ق
 
 # Discord
 
